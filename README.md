@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PaladinTalee
+- 👀 I’m interested in all nerd things.
+- 🌱 I’m currently learning how to make it through life appearing as an adult.
+- 💞️ I’m looking to collaborate on anything interesting
+- 📫 How to reach me: have your people call my people
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am probably kidding.
